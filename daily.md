@@ -9,7 +9,7 @@
 밤 : pushups 1r10 , freesquat 1r10
 >
 Memo
->힘
+>힘 변화 의지
 
 #### 231024(화)
 식사  
